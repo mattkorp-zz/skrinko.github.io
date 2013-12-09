@@ -1,1 +1,0 @@
-[korp.me](http://korp.me)
